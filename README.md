@@ -10,3 +10,6 @@ Meu nome e Felipe Schlossser Souza.
 ### Voce pode entrar em contato comigo 📫
 
 felipe.schlosser.souza@escola.pr.gov.br
+
+
+![](https://media.tenor.com/2zr_hNOVfOYAAAAC/modern-warfare2-ghost.gif)
